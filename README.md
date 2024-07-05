@@ -1,1 +1,7 @@
-# UAS-Pemograman-Mobile-2
+Nama Kelompok
+
+- Nadya Khairunnisa
+
+- Dhea Dwi Adelia
+
+- Ihsan Hadimulya
